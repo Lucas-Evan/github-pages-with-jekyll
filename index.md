@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to lucas' blog of music reviews
 
-I'm glad you are here. I plan to talk about ...
+I'm glad you are here. 
